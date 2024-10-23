@@ -14,7 +14,7 @@ Coding
 
 📫 How to reach me gpampa08@gmail.com
 
--I love the World of Coding and trying to create magic with coding and creativity.
+I love the World of Coding and trying to create magic with coding and creativity.
 
 Connect with me:
 
